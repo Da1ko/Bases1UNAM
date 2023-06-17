@@ -1,1 +1,0 @@
-“¿Por qué nos caemos, Bruce? Para aprender a levantarnos”. (Thomas Wayne, ‘Batman Begins’)
